@@ -4,6 +4,26 @@ Web 3!full template ready, accepts all kind of transactions, cool and effective 
 
 
 ---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
+---
 
 
 
